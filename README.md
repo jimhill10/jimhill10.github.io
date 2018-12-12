@@ -1,2 +1,2 @@
 # jimhill10.github.io
-Jim Hill
+Home of Jim Hill
